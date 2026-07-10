@@ -2,5 +2,4 @@
 ## by xiaomaimai
 ##   xiaomaimainp@qq.com
 
-🐧  2722929712  
-🛰  xiaomaimainp
+🐧  1808060618
